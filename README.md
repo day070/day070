@@ -1,5 +1,5 @@
 ## Hy, There 👀
-# 👦🏼 About Me: 
+# 🪪 About Me: 
 i'm a Gratuated From SMK TI Bali Global Denpasar I'm currently majoring in Software Engineering 🖥 And I'm interisting about develop a app or program also i'm very interest about cyber security 🫀
 
 
